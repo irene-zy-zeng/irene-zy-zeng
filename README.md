@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **irenezy.zeng@gmail.com**
 
-- 📄 Know about my experiences [https://docs.google.com/document/d/1dx90D6BLIp6T3yUmTVU76su08lBeLS0FefClUd5s9Nc/edit?usp=sharing](https://docs.google.com/document/d/1dx90D6BLIp6T3yUmTVU76su08lBeLS0FefClUd5s9Nc/edit?usp=sharing)
+- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/1gMxZ0c_KTXTNDf_ESTGY5kAyB2tSBCjs/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
